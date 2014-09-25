@@ -4,5 +4,4 @@ Panda
 This is my test repository over the git hub.
 
 Hi all
-
-I am going to tell u about the the one of the finest kungfu master of the china was kunfu panda. He was an hero of the the children of china. He faught many fights and won. He was one fighter who fought for the peace and happiness of people of his city.
+      Here I am going to tell u a story of the film kungfu panda. Kungfu panda is one of my beloved character. I like him very much. He is a very cute and inocent. He does works beyond his capablity with inosense that no one could believe. His works bring peace and harmony in the city.
